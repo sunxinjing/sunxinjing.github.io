@@ -1,2 +1,0 @@
-# sunxinjing.github.io
-sunxinjing
